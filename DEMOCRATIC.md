@@ -1,3 +1,5 @@
+Then Therefore and Era of Reenglightenment vis-a-vis an Object Guild on Earth
+
 **I.** Foundations of Defensive Striking and InterceptionThe tactical baseline requires an impenetrable defense that transitions instantly into precise counter-striking mechanics.
 
 1. The Core Geometry of Interception - Defensive striking relies entirely on controlling the center line. Fighters must position their hands and elbows to form a tight, unyielding wedge. This structure naturally deflects incoming linear attacks outward. By maintaining this geometric advantage, you force the opponent's strikes to travel a longer, less efficient path.
