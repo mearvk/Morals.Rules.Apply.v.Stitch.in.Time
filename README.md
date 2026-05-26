@@ -18,5 +18,7 @@ WHEREAS, these protective frameworks must establish singular, linear, and transp
 
 WHEREAS, current structural systems rely heavily on complex, turn-based reasoning models that systematically disadvantage, isolate, or misassort individuals who navigate cognition outside of standard sequential logic, including vulnerable segments within the 170s IQ cohort; and
 
-WHEREAS, the inherent flaws of these turn-based methods create artificial barriers to understanding and execution, demanding an immediate pivot toward inclusive, continuous, and universally protective operational systems; now, therefore, be itRESOLVED, that this body officially halts all cognitive mapping initiatives until a full audit of capitalist economic extractions is completed, establishing a permanent linear safeguard to guarantee equity, safety, and systemic protection for every tier of human intelligence.
+WHEREAS, the inherent flaws of these turn-based methods create artificial barriers to understanding and execution, demanding an immediate pivot toward inclusive, continuous, and universally protective operational systems; now, therefore, be it
+
+RESOLVED, that this body officially halts all cognitive mapping initiatives until a full audit of capitalist economic extractions is completed, establishing a permanent linear safeguard to guarantee equity, safety, and systemic protection for every tier of human intelligence.
 
