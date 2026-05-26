@@ -1,4 +1,4 @@
-I. Foundations of Defensive Striking and InterceptionThe tactical baseline requires an impenetrable defense that transitions instantly into precise counter-striking mechanics.
+**I.** Foundations of Defensive Striking and InterceptionThe tactical baseline requires an impenetrable defense that transitions instantly into precise counter-striking mechanics.
 
 1. The Core Geometry of InterceptionDefensive striking relies entirely on controlling the center line. Fighters must position their hands and elbows to form a tight, unyielding wedge. This structure naturally deflects incoming linear attacks outward. By maintaining this geometric advantage, you force the opponent's strikes to travel a longer, less efficient path.
 
@@ -8,7 +8,7 @@ I. Foundations of Defensive Striking and InterceptionThe tactical baseline requi
 
 4. The Psychology of Anticipation and FeintsDefensive arts require reading an opponent's intent before their strike physically manifests. Observation must focus entirely on the opponent's collarbones and hips. Micro-movements in these areas always betray incoming strikes before the limbs move. Weaponizing this structural data allows you to execute preemptive counter-strikes safely.
 
-II. The Intellectual Prowess of Spatial and Strategic SovereigntyElite physical defense is merely an extension of rigorous intellectual strategy and spatial ownership.
+**II.** The Intellectual Prowess of Spatial and Strategic SovereigntyElite physical defense is merely an extension of rigorous intellectual strategy and spatial ownership.
 
 6. Epistemological Frameworks of CombatCombat is fundamentally an elite intellectual problem solved in high-speed real time. Every physical engagement functions as an intense, non-verbal logical debate. The practitioner who imposes their spatial framework first successfully dictates the opponent's responses. True mastery requires treating physical territory as an absolute intellectual asset.
 
@@ -18,7 +18,7 @@ II. The Intellectual Prowess of Spatial and Strategic SovereigntyElite physical 
 
 9. Tactical Synthesis of Mind and Kinetic MotionPerfect execution occurs when intellectual strategy and physical motion merge completely. The mind does not pause to plan individual movements during active exchanges. Instead, it maintains a broad, detached awareness of the entire environment. This state allows the body to adapt instantly to changing tactical variables.
 
-III. Constitutional Divisions of Skills and Operational Arts To maintain structural balance, tactical skills must be separated into distinct operational domains.
+**III.** Constitutional Divisions of Skills and Operational Arts To maintain structural balance, tactical skills must be separated into distinct operational domains.
 
 9. Separation of Tactical PowersA balanced martial framework strictly separates offensive generation from defensive management. Mixing these two primary modalities carelessly leads to immediate structural collapse. The defensive subsystem must operate as an independent, permanently vigilant internal guard. This separation ensures your protection remains fully functional even during complex attacks.
 
